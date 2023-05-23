@@ -1,0 +1,2 @@
+# companyprofil
+Semoga Masuk Surga
